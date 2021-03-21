@@ -1,0 +1,1 @@
+take the bread and put butter on it, put cucumber and tomato, eat it with some hot soup
